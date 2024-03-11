@@ -1,0 +1,2 @@
+# Tugas-gue
+Tugas STMIK 
